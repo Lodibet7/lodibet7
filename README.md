@@ -1,9 +1,8 @@
-### Hi! Here 👋
-
-LODIBET, the best online casino in the Philippines includes slot machines, live dealer games, baccarat, roulette, live sabong, and lottery. There is also the latest information about online gaming, guidance, and ranking.
+### Hi! Guys 👋
+<a href="https://www.lodibet7.com" title="Lodibet">LODIBET</a>, the best online casino in the Philippines includes slot machines, live dealer games, baccarat, roulette, live sabong, and lottery. There is also the latest information about online gaming, guidance, and ranking.
 <br><br>
 
-LODIBET Gaming has been reviewed by Filipino players as one of the top online casinos, where you can get rich bonuses, fast and legal cash flows, and high-quality games. LODIBET Casino is recognized as the best casino and has been very popular among players.
+<a href="https://www.lodivip7.com" title="Lodibet Gaming">LODIBET Gaming</a> has been reviewed by Filipino players as one of the top online casinos, where you can get rich bonuses, fast and legal cash flows, and high-quality games. LODIBET Casino is recognized as the best casino and has been very popular among players.
 <br><br>
 
 
